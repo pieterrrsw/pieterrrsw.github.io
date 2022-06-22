@@ -31,7 +31,7 @@ _Drank is er meer dan genoeg dus daar geen zorgen over!_
 ### Andere dingetjes
 _- Mochten jullie willen blijven slapen omwille van het niet in staat zijn om thuis te geraken, mag je altijd hier blijven slapen. We gaan wel allemaal in tentjes dan want binnen is niet heel veel plaats. Neem als het mogelijk is uw eigen tentje en materiaal mee aub!_
 
-_- Jullie zijn allemaal welkom vanaf 8u, kan zijn dat er dan wel nog wat familie aanwezig want die komen vanaf 7 maar zullen na een tijdje wel naar huis gaan._
+_- Jullie zijn allemaal welkom vanaf 20u, kan zijn dat er dan wel nog wat familie aanwezig want die komen vanaf 19u._
 
 _- Als jullie iemand extra willen meenemen, laat dat maar gerust weten!_
 
